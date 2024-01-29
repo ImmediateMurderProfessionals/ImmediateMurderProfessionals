@@ -4,6 +4,8 @@ Skibidi toilet sucks
 
 Team H: The Series
 
+Autistic
+
 Age: 13 years 10 months (born March 29, 2010)
 
 Anything @Hexagon1296 says about me is wrong.
