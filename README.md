@@ -20,4 +20,10 @@ I will also soon get creator points in Geometry Dash!
 
 My best GD level is The Greatest Decade, the ID is 93363041.
 
+I am more mature than Hexagon, also fuck him because he doxxed me 🖕🖕🖕 (the difference is he denies doxxing me, but when I doxxed Blue I realized my mistake in just one day and deleted the comment, why does Blue still give me shit about it but denies that Hexagon did anything wrong for... some reason)
+
+I AM A GIGACHAD
+
 My most popular Scratch project is H3447: Simple Wave Engine Speedbuild, which can be found at https://scratch.mit.edu/projects/835022794
+
+https://immediatemurderprofessionals.github.io
