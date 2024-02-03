@@ -20,8 +20,6 @@ Non-linkable profiles: BombCraftHTS on Geometry Dash, uhh idk what else
 
 Youtube channel, Newgrounds account, and Soundtrap account coming soon!
 
-Fuck springhouse middle school 🖕
-
 I will also soon get creator points in Geometry Dash!
 
 My best GD level is The Greatest Decade, the ID is 93363041.
