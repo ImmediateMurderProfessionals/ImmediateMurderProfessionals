@@ -8,6 +8,14 @@ Skibidi toilet sucks
 
 #StopTheUndeservedHate
 
+#SupportTheLGBTQCommunity
+
+#SayNOToTrump
+
+#FuckTheAltRight (the alt-right is a group of far right neo-nazis that are mostly comprised of white supremacists, christofascists, and other assholes)
+
+#NoIDontHateReligiousGroupsYouFuckingIdiots
+
 The Geometry Dash level "BombCraft Extended" by BCMGF1137 is full of complete bullshit.
 
 And also Blue's doxxing was NOT done with malicious intent, I WAS TRYING TO FUCKING COMPLIMENT HIM JESUS FUCKING CHRIST
