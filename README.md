@@ -16,7 +16,9 @@ Skibidi toilet sucks
 
 #NoIDontHateReligiousGroupsYouFuckingIdiots
 
-The Geometry Dash level "BombCraft Extended" by BCMGF1137 is full of complete bullshit.
+inbucoiehwbvopvbewroivjhebipvoijwhebropviweqwiohjbefpowejirbfuewohfbiueqwbfhjowebriufgvbewrviupehwfoivniuefwdjovjnwoepifvoen
+
+The Geometry Dash level "BombCraft Extended" by BCMGF1137 is full of complete bullshit. I will debunk all the false claims in the level pretty soon, so stay tuned.
 
 And also Blue's doxxing was NOT done with malicious intent, I WAS TRYING TO FUCKING COMPLIMENT HIM JESUS FUCKING CHRIST, so STOP CALLING ME A DOXXER >:(
 
