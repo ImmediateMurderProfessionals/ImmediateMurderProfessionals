@@ -16,6 +16,8 @@ Skibidi toilet sucks
 
 #NoIDontHateReligiousGroupsYouFuckingIdiots
 
+#IShouldProbablyGetRidOfTheseHashtags
+
 #SaveTheOwlHouse
 
 The Geometry Dash level "BombCraft Extended" by BCMGF1137 is full of complete bullshit. I will debunk all the false claims in the level pretty soon, so stay tuned.
