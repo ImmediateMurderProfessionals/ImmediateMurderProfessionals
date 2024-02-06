@@ -26,6 +26,7 @@ And also Blue's doxxing was NOT done with malicious intent, I WAS TRYING TO FUCK
 
 I don't hate anyone or any group of people for who they are, I may hate a person or group of people for their actions, but usually, when it's a group, I don't hate the entire group (with a few exceptions like white supremacists). For example, I don't hate all Muslims, I hate when Muslims do bad things because of their religion (e. g. claiming that women are inferior to men)
 
+trying my hardest to not have a fucking mental breakdown like bro bcmgf you need to stop the undeserved hate like bro i did nothing wrong
 Team H: The Series
 
 Autistic
