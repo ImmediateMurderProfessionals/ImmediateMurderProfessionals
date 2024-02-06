@@ -29,6 +29,8 @@ I don't hate anyone or any group of people for who they are, I may hate a person
 trying my hardest to not have a fucking mental breakdown like bro bcmgf you need to stop the undeserved hate like bro i did nothing wrong
 Team H: The Series
 
+e
+
 Autistic
 
 Age: 13 years 10 months (born March 29, 2010)
