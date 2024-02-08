@@ -6,6 +6,6 @@ Quote wall:
 
 "I play chess for fun, and just hope that I don’t blunder because that would be disastrous..." -BCMGF1137/19themarketableplushie, 2023
 
-"[insert coffee copypasta]" -Moxxie Knolastname, 2022
+"[insert coffee copypasta]" -Moxxie Knolastname, 2021
 
 "More coming soon!" -BombCraft, 2024
