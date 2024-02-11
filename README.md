@@ -12,6 +12,8 @@ Quote wall:
 
 "I'm better in bed than my viewers." -Chess Simp, 2025
 
+"I want Sir Pentious to be a slithering tryhard in bed with me" -Gooseworx, 2018
+
 "You can do anything in art, as long as it works." -STAR Reading Test, 1996
 
 "Using either github or replit as a 12 year old violates the terms of service of either site. I strongly recommend you drop the topic." -Reinhardt-C, 2024
