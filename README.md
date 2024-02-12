@@ -1,5 +1,7 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
+Days until I become old enough to have sex in Germany: 46
+
 Quote wall:
 
 "Sure! I like doing anything!" -Serial Designation N, 2021
