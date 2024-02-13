@@ -1,6 +1,6 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-Days until I become old enough to have sex in Germany: 46
+Days until I become old enough to have sex in Germany: 45
 
 Quote wall:
 
