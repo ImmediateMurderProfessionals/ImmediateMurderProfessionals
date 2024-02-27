@@ -1,10 +1,10 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-Days until I become old enough to have sex in Germany: 32
+Days until I become old enough to have sex in Germany: 31
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 399
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 398
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 70
+Days until my even stupider HTS ban that I only kinda deserve expires: 69 (nice)
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
