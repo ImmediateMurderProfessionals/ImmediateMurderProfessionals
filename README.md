@@ -1,10 +1,10 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-Days until I become old enough to have sex in Germany: 24
+Days until I become old enough to have sex in Germany: 23
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 391
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 390
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 62
+Days until my even stupider HTS ban that I only kinda deserve expires: 61
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
@@ -15,6 +15,8 @@ Quote wall:
 "One of the worst things you can do, even worse than rape or mutilation or shit like that, is leave this world behind. Really, the only worse thing you can do is remove someone else from this world. It's very unfortunate that all of us are going to end up having to leave this world behind someday, because again, leaving this world is the second worst thing you can do." -BombCraft, 2024
 
 "I play chess for fun, and just hope that I don’t blunder because that would be disastrous..." -BCMGF1137/19themarketableplushie, 2023
+
+"Nonsense is a form of art." -BombCraft, 2024
 
 "Keep talking and nobody explodes sucks." -Anyone with a brain, 2015
 
