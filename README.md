@@ -10,6 +10,8 @@ I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good
 
 Hexagon try not to cap challenge (impossible)
 
+Ffs he's a 12 year old with the maturity of a 10 year old claiming to be more mature than me (a 13-almost-14 year old with the maturity of a 15 year old), like why the fuck is he so god damn delusional
+
 Quote wall:
 
 "Sure! I like doing anything!" -Serial Designation N, 2021
