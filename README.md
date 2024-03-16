@@ -1,6 +1,6 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-Days until I become old enough to have sex in Germany (also the bext episode of murder drones): 13
+Days until I become old enough to have sex in Germany (also the next episode of murder drones): 13
 
 Days until my stupid ass IP ban on Scratch that I don't deserve expires: 380
 
