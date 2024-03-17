@@ -1,10 +1,10 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-Days until I become old enough to have sex in Germany (also the next episode of murder drones): 13
+Days until I become old enough to have sex in Germany (also the next episode of murder drones): 12
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 380
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 379
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 51
+Days until my even stupider HTS ban that I only kinda deserve expires: 50
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
@@ -21,6 +21,8 @@ Quote wall:
 "I play chess for fun, and just hope that I don’t blunder because that would be disastrous..." -BCMGF1137/19themarketableplushie, 2023
 
 "Nonsense is a form of art." -BombCraft, 2024
+
+"At the end of the day your brain is just a meat computer in a bone cockpit piloting a skin robot! You think the world makes sense? Nothing makes sense! So you might as well make nonsense! Think about it!" -🥚, 2024
 
 "Keep talking and nobody explodes sucks." -Anyone with a brain, 2015
 
