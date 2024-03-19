@@ -10,6 +10,32 @@ Days until my even stupider HTS ban that I only kinda deserve expires: 48
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
+Here are some cool challenges:
+
+ObamaCraft try to optimize levels challenge (impossible)
+
+BCMGF1137 try to forgive people for 9-month-old drama challenge (impossible)
+
+Hexagon follow age restrictions on various sites challenge (impossible)
+
+ObamaCraft actually play chess on chess.com challenge (impossible)
+
+Stolas Goetia try not to be Bulgarian challenge (impossible)
+
+Scratch Team do their actual job challenge (impossible)
+
+Skibidi Toilet try not to suck challenge (impossible)
+
+Gen Alpha try not to be cringe challenge (impossible)
+
+Caine try not to snort coke challenge (impossible)
+
+BombCraft try not to cook challenge (impossible)
+
+Dimayajonelcid try not to dislike bomb people on GDBrowser who don't deserve to get dislike bombed challenge (impossible)
+
+D8fb try not to call me offensive nicknames challenge (impossible)
+
 Hexagon try not to cap challenge (impossible)
 
 Ffs he's a 12 year old with the maturity of a 10 year old claiming to be more mature than me (a 13-almost-14 year old with the maturity of a 15 year old), like why the fuck is he so god damn delusional
