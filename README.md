@@ -2,11 +2,11 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 Why the FUCK did GD Cologne block me
 
-Days until I become old enough to have sex in Germany (also the next episode of murder drones): 9
+Days until I become old enough to have sex in Germany (also the next episode of murder drones): 8
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 376
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 375
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 47
+Days until my even stupider HTS ban that I only kinda deserve expires: 46
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
