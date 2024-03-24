@@ -69,3 +69,6 @@ Quote wall:
 "Using either github or replit as a 12 year old violates the terms of service of either site. I strongly recommend you drop the topic." -Reinhardt-C, 2024
 
 "More coming soon!" -BombCraft, 2024
+
+WE TURNING EVERYTHING INTO MARKETABLE PLUSHIES WITH THIS ONE
+![always has been (1)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/552ff90f-4c40-45e4-8db7-d5d8b9d9c68f)
