@@ -2,11 +2,11 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 Why the FUCK did GD Cologne block me
 
-Days until I become old enough to have sex in Germany (also the next episode of murder drones): 5
+Days until I become old enough to have sex in Germany (also the next episode of murder drones): 4
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 372
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 371
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 43
+Days until my even stupider HTS ban that I only kinda deserve expires: 42
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
@@ -32,7 +32,7 @@ Caine try not to snort coke challenge (impossible)
 
 BombCraft try not to cook challenge (impossible)
 
-Dimayajonelcid try not to dislike bomb people on GDBrowser who don't deserve to get dislike bombed challenge (impossible)
+Dimayajonelcid try not to dislike bomb people on GDBrowser who don't deserve to get dislike bombed challenge (impossible) (NOTE: If BCMGF1137 is not the one dislike bombing my comments, I will delete this challenge and apologize to him)
 
 D8fb try not to call me offensive nicknames challenge (impossible)
 
