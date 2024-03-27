@@ -30,6 +30,10 @@ Gen Alpha try not to be cringe challenge (impossible)
 
 Caine try not to snort coke challenge (impossible)
 
+Vivziepop sell things at a reasonable price challenge (impossible)
+
+BCMGF1137 try not to SOFTCAPP everything challenge (impossible)
+
 BombCraft try not to cook challenge (impossible)
 
 Dimayajonelcid try not to dislike bomb people on GDBrowser who don't deserve to get dislike bombed challenge (impossible) (NOTE: If BCMGF1137 is not the one dislike bombing my comments, I will delete this challenge and apologize to him)
