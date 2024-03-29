@@ -42,7 +42,7 @@ D8fb try not to call me offensive nicknames challenge (impossible)
 
 Hexagon try not to cap challenge (impossible)
 
-Ffs he's a 12 year old with the maturity of a 10 year old claiming to be more mature than me (a 13-almost-14 year old with the maturity of a 15 year old), like why the fuck is he so god damn delusional
+Ffs he's a 12 year old with the maturity of a 10 year old claiming to be more mature than me (a 14 year old with the maturity of a 15 year old), like why the fuck is he so god damn delusional
 
 Quote wall:
 
