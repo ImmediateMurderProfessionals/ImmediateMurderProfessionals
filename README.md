@@ -2,7 +2,7 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 Why the FUCK did GD Cologne block me
 
-Days until I become old enough to have sex in Germany (also the next episode of murder drones): 1
+Now I am old enough to have sex in Germany!
 
 Days until my stupid ass IP ban on Scratch that I don't deserve expires: 368
 
