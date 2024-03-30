@@ -4,9 +4,9 @@ Why the FUCK did GD Cologne block me
 
 Now I am old enough to have sex in Germany!
 
-Days until my stupid ass IP ban on Scratch that I don't deserve expires: 367
+Days until my stupid ass IP ban on Scratch that I don't deserve expires: 366
 
-Days until my even stupider HTS ban that I only kinda deserve expires: 38
+Days until my even stupider HTS ban that I only kinda deserve expires: 37
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
