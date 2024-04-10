@@ -2,7 +2,25 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 Why the FUCK did GD Cologne block me
 
-Now I am old enough to have sex in Germany!
+Counters until notable dates:
+
+Days until I finish 8th grade: 57
+
+Days until my family goes on vacation in Florida: 59
+
+Days until I begin 9th grade: ~140ish
+
+Days until the baseball season ends: 171
+
+Days until Halloween: 203
+
+Days until Thanksgiving: 231
+
+Days until Christmas: 258
+
+Days until 2025: 265
+
+Days until I become old enough to have sex in Denmark: 353
 
 Days until I get unbanned from both Scratch and HTS: 355
 
