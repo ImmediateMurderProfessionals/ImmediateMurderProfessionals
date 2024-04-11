@@ -42,6 +42,8 @@ Quote wall:
 
 "Poetry makes me want to kill myself." -BombCraft, 2024
 
+"Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
+
 "I'm better in bed than my viewers." -Chess Simp, 2025
 
 "I want Sir Pentious to be a slithering tryhard in bed with me" -Gooseworx, 2018
