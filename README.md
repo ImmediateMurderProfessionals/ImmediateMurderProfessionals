@@ -4,6 +4,8 @@ Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
 
+Days until the next episode of Helluva Boss releases: 28
+
 Days until I finish 8th grade: 42
 
 Days until my family goes on vacation in Florida: 44
