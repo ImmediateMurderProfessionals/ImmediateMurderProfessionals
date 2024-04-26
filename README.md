@@ -10,7 +10,7 @@ Days until I finish 8th grade: 42
 
 Days until my family goes on vacation in Florida: 44
 
-Days until I begin high school: ~125ish
+Days until I begin high school: 123
 
 Days until the baseball season ends: 156
 
