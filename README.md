@@ -8,7 +8,7 @@ Days until the next episode of The Amazing Digital Circus releases: 3
 
 Days until the next episode of Helluva Boss releases: 23
 
-Days until I finish 8th grade: 37
+Days until I finish 8th grade: 36
 
 Days until my family goes on vacation in Florida: 39
 
