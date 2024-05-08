@@ -4,31 +4,31 @@ Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
 
-Days until Fairly Oddparents reboot: 13
+Days until Fairly Oddparents reboot: 12
 
-Days until the next episode of Helluva Boss releases: 16
+Days until the next episode of Helluva Boss releases: 15
 
-Days until I finish 8th grade: 29
+Days until I finish 8th grade: 28
 
-Days until my family goes on vacation in Florida: 32
+Days until my family goes on vacation in Florida: 31
 
-Days until I begin high school: 111
+Days until I begin high school: 110
 
-Days until the baseball season ends: 144
+Days until the baseball season ends: 143
 
-Days until Halloween: 176
+Days until Halloween: 175
 
-Days until you will vote for Biden (provided you are 18+ and from the US): 181
+Days until you will vote for Biden (provided you are 18+ and from the US): 180
 
-Days until Thanksgiving: 204
+Days until Thanksgiving: 203
 
-Days until Christmas: 231
+Days until Christmas: 230
 
-Days until 2025: 238
+Days until 2025: 237
 
-Days until I become old enough to have sex in Denmark: 326
+Days until I become old enough to have sex in Denmark: 325
 
-Days until I get unbanned from both Scratch and HTS: 328
+Days until I get unbanned from both Scratch and HTS: 327
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
