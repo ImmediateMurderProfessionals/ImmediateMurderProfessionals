@@ -4,7 +4,7 @@ Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
 
-Days until Fairly Oddparents reboot: 19
+Days until Fairly Oddparents reboot: 9
 
 Days until the next episode of Helluva Boss releases: 12
 
