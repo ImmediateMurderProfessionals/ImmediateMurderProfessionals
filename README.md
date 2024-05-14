@@ -64,3 +64,6 @@ Quote wall:
 
 WE TURNING EVERYTHING INTO MARKETABLE PLUSHIES WITH THIS ONE
 ![always has been (1)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/552ff90f-4c40-45e4-8db7-d5d8b9d9c68f)
+
+The H periodic table:
+<img width="937" alt="Screenshot 2024-05-14 at 12 28 33 PM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/815844cc-a233-409e-956d-af4fca237b91">
