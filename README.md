@@ -1,5 +1,7 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
+(If you're confused, "istfsm" in my status means "I swear to flying spaghetti monster" because I don't believe in a god but I need something to swear to)
+
 Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
