@@ -1,3 +1,5 @@
+[CONTINUED FROM STATUS] I won't call you a male karen again, evidenced by the fact that I haven't done so in eleven months. Also, your version of the HTS isotopic table is fake because it's full of errors. I'm working on a fixed version that will be shared when I get unbanned on Scratch and HTS on March 31, 2025, though if you don't want to wait that long to see my fixed version I will post the .sb3 file to https://github.com/ImmediateMurderProfessionals/The-H-isotopic-table-but-it-doesn-t-suck-ass/tree/main when I finish it (which will be long before the aforementioned March 31, 2025)
+
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 (If you're confused, "istfsm" in my status means "I swear to flying spaghetti monster" because I don't believe in a god but I need something to swear to so I chose FSM because I like pasta)
