@@ -54,6 +54,8 @@ Quote wall:
 
 "I want Sir Pentious to be a slithering tryhard in bed with me" -Gooseworx, 2018
 
+"The belief that I am delusional is a delusion in and of itself" -BombCraft, 2024
+
 "You can do anything in art, as long as it works." -STAR Reading Test, 1996
 
 "Never believe anything you hear on the internet." -George Oregon, First King of the United Provinces, 1492
