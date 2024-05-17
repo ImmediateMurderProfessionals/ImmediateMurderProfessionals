@@ -79,3 +79,6 @@ WE TURNING EVERYTHING INTO MARKETABLE PLUSHIES WITH THIS ONE
 
 The H periodic table:
 <img width="937" alt="Screenshot 2024-05-14 at 12 28 33 PM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/815844cc-a233-409e-956d-af4fca237b91">
+
+<img width="857" alt="Screenshot 2024-05-17 at 12 59 48 PM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/2415d289-2e67-4b82-b74f-957519d702dd">
+
