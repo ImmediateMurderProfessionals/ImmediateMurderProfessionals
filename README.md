@@ -19,7 +19,7 @@ Counters until notable dates:
 
 Days until the next episode of Helluva Boss releases: 1
 
-Days until I finish 8th grade: 14
+Days until I finish 8th grade: 13
 
 Days until my family goes on vacation in Florida: 17
 
