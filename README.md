@@ -59,6 +59,8 @@ Quote wall:
 
 "Poetry makes me want to kill myself." -BombCraft, 2024
 
+"It's called Super Smash Bros because I want to smash Pit and/or Dark Pit" -BombCraft, 2024
+
 "Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
 
 "I'm better in bed than my viewers." -Chess Simp, 2025
