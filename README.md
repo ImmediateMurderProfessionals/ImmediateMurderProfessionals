@@ -18,27 +18,27 @@ Counters until notable dates:
 
 Days until the next episode of Helluva Boss releases: You have got to be fucking kidding me
 
-Days until I finish 8th grade: 11
+Days until I finish 8th grade: 10
 
-Days until my family goes on vacation in Florida: 15
+Days until my family goes on vacation in Florida: 14
 
-Days until I begin high school: 94
+Days until I begin high school: 93
 
-Days until the baseball season ends: 127
+Days until the baseball season ends: 126
 
-Days until Halloween: 159
+Days until Halloween: 158
 
-Days until you will vote for Biden (provided you are 18+ and from the US): 164
+Days until you will vote for Biden (provided you are 18+ and from the US): 163
 
-Days until Thanksgiving: 187
+Days until Thanksgiving: 186
 
-Days until Christmas: 214
+Days until Christmas: 213
 
-Days until 2025: 221
+Days until 2025: 220
 
-Days until I become old enough to have sex in Denmark: 309
+Days until I become old enough to have sex in Denmark: 308
 
-Days until I get unbanned from both Scratch and HTS: 311
+Days until I get unbanned from both Scratch and HTS: 310
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
