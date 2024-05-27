@@ -16,7 +16,7 @@ Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
 
-Days until the next episode of Helluva Boss releases: You have got to be fucking kidding me
+Days until the next episode of Helluva Boss releases: 5
 
 Days until I finish 8th grade: 9
 
