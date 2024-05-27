@@ -58,6 +58,8 @@ Quote wall:
 
 "Poetry makes me want to kill myself." -BombCraft, 2024
 
+"Steal like an artist." -My 7th grade art teacher, 2022
+
 "It's called Super Smash Bros because I want to smash Pit and/or Dark Pit" -BombCraft, 2024
 
 "Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
