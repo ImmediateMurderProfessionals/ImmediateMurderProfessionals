@@ -6,7 +6,7 @@ AND NO YOU CAN'T CENSOR MY NAME IN HTS YOU &#%@!
 
 (Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to made Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31)
 
-<img width="960" alt="Screenshot 2024-05-16 at 11 37 19 AM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/15c10d96-7ea5-455d-9a55-028eaa3c626c">
+![download](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/418d37cc-cbd7-489c-bf71-b510364de468)
 
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
