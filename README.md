@@ -38,6 +38,8 @@ Days until I become old enough to have sex in Denmark: 298
 
 Days until I get unbanned from both Scratch and HTS: 300
 
+Days until I graduate high school: 1459
+
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
 Quote wall:
