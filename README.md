@@ -1,16 +1,8 @@
-<img width="881" alt="Screenshot 2024-05-23 at 9 52 56 PM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/d94cf061-d98c-430f-b6f5-b5c4d971c39e">
-
-@Hexagon1296 stop overplaying the severity of me calling you a male karen istfsm, im sorry. Please forgive me. I won't call you a male karen again, evidenced by the fact that I haven't done so in eleven months. (You're still annoying though, which is why I originally called you a male karen, but then again most middle schoolers are annoying lol, I'm kinda annoying too) Also, your version of the HTS isotopic table is fake because it's full of errors. I'm working on a fixed version (with new things like decay methods) that will be shared when I get unbanned on Scratch and HTS on March 31, 2025, though if you don't want to wait that long to see my fixed version I will post the .sb3 file to https://github.com/ImmediateMurderProfessionals/The-H-isotopic-table-but-it-doesn-t-suck-ass/tree/main when I finish it (which will be long before the aforementioned March 31, 2025). As for doxxing Blue, I've apologized like {10, 10, 10, 10} times, i wasn't trying to doxx blue, I was trying to compliment him, I didn't know commenting his hometown was bad (I'm fine with people saying that I live in Coopersburg, PA), and was also a decent amount more immature than I am now. I won't doxx Blue again. (Fun fact: the project https://scratch.mit.edu/projects/845558931/ also had Blue's hometown on it but I removed it after getting banned). Please forgive me for my actions (This goes to other H makers too), and stop deleting my comments. Can we be friends? Oh, and I also might start playing Portal soon. I've wanted to play Portal since like 2021, I just said it was mid because I didn't like you. Oh, and people that call me "Zombcraft" or "delusional" should stop. I hate being called that!
-
-AND NO YOU CAN'T CENSOR MY NAME IN HTS YOU &#%@!
-
-(Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to made Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31)
+Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to made Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31
 
 ![download](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/418d37cc-cbd7-489c-bf71-b510364de468)
 
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
-
-(If you're confused, "istfsm" in my status means "I swear to flying spaghetti monster" because I don't believe in a god but I need something to swear to so I chose FSM because I like pasta)
 
 Why the FUCK did GD Cologne block me
 
