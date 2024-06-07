@@ -8,29 +8,29 @@ Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
 
-Days until my family goes on vacation in Florida: 2
+Days until my family goes on vacation in Florida: 1
 
-Days until I begin high school: 81
+Days until I begin high school: 80
 
-Days until the baseball season ends: 114
+Days until the baseball season ends: 113
 
-Days until Halloween: 146
+Days until Halloween: 145
 
-Days until you will vote for Biden (provided you are 18+ and from the US): 151
+Days until you will vote for Biden (provided you are 18+ and from the US): 150
 
-Days until Thanksgiving: 174
+Days until Thanksgiving: 173
 
-Days until Christmas: 201
+Days until Christmas: 200
 
-Days until 2025: 208
+Days until 2025: 207
 
-Days until I become old enough to have sex in Denmark: 296
+Days until I become old enough to have sex in Denmark: 295
 
-Days until I get unbanned from both Scratch and HTS: 298
+Days until I get unbanned from both Scratch and HTS: 297
 
-Days until I become old enough to drive: 661
+Days until I become old enough to drive: 660
 
-Days until I graduate high school: 1457
+Days until I graduate high school: 1456
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
