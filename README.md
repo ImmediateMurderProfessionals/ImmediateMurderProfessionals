@@ -46,7 +46,7 @@ Quote wall:
 
 "Bombium has 2 stable isotopes." -Anyone with a brain, 2024
 
-"I'll have the Neapolitan Cappuccino, more cappu than ccino, make sure it has no more than 4 ounces of milk, the beans won't have the right texture otherwise, and make sure that they spell my name correctly on the cup. They always put foxy or roxy, I hate that. *BREATH* If you can't handle that, I'll have a Venti Traditional Misto, please use soy milk with 2 blonde shots of Affrogato AND Ristretto! I'd also love 3 Vanilla pumps at the very bottom then, add the coffee after. then-" -Moxxie "Possum" Knolastname, 2021
+"I'll have the Neapolitan Cappuccino, more cappu than ccino, make sure it has no more than 4 ounces of milk, the beans won't have the right texture otherwise, and make sure that they spell my name correctly on the cup. They always put foxy or roxy, I hate that. *BREATH* If you can't handle that, I'll have a Venti Traditional Misto, please use soy milk with 2 blonde shots of Affrogato AND Ristretto! I'd also love 3 Vanilla pumps at the very bottom then, add the coffee after. then-" -Moxxie "Possum" Knolastname (2003devin's boyfriend), 2021
 
 "Poetry makes me want to kill myself." -BombCraft, 2024
 
@@ -57,6 +57,8 @@ Quote wall:
 "Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
 
 "I'm better in bed than my viewers." -Chess Simp, 2025
+
+"Infinite punishment for finite actions is stupid." -Anyone with a brain, date unknown
 
 "I want Sir Pentious to be a slithering tryhard in bed with me" -Gooseworx, 2018
 
