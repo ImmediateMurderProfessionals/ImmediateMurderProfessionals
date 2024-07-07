@@ -1,8 +1,8 @@
 I think my GD account got disabled and now I want to
 
-<<<<<<<<<<Kill<<<<<<<<<<<
+ <<<<<<<<<<Kill<<<<<<<<<<<
 
->>>>>>>>>Myself>>>>>>>>>>
+ >>>>>>>>>Myself>>>>>>>>>>
 
 Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to make Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31
 
