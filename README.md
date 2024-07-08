@@ -1,3 +1,5 @@
+![IMG_8537](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/26442d0f-657d-4296-abfe-24cf11f0244a)
+
 My GD account got disabled and now I want to
 
 ⠀<<<<<<<<<<Kill<<<<<<<<<<<
