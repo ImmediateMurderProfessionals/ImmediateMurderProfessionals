@@ -62,6 +62,8 @@ Quote wall:
 
 "Nonsense is a form of art." -BombCraft, 2024
 
+"i am divinely protected and those who wronged me will be punished by god actually" -Cerufiffy, 2023
+
 "At the end of the day your brain is just a meat computer in a bone cockpit piloting a skin robot! You think the world makes sense? Nothing makes sense! So you might as well make nonsense! Think about it!" -🥚, 2024
 
 "Bombium has 2 stable isotopes." -Anyone with a brain, 2024
