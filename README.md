@@ -50,6 +50,8 @@ Days until I graduate high school: 1421
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
+I may come back to BTD5 in the future...
+
 Nintendo switch friend code: SW-2753-1792-8503
 
 Quote wall:
