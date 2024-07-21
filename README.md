@@ -20,39 +20,41 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
 Why the FUCK did GD Cologne block me
 
+Splatoon 3: BombCraft♪#2777
+
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 25
+Days until my Wikipedia account becomes extended confirmed: 24
 
-Days until I begin high school: 37
+Days until I begin high school: 36
 
-Days until the new Zelda game releases: 68
+Days until the new Zelda game releases: 67
 
-Days until the baseball season ends: 70
+Days until the baseball season ends: nice
 
-Days until Halloween: 102
+Days until Halloween: 101
 
-Days until you will vote for Biden (provided you are 18+ and from the US): 107
+Days until you will vote for Biden (provided you are 18+ and from the US): 106
 
-Days until Thanksgiving: 130
+Days until Thanksgiving: 129
 
-Days until Christmas: 157
+Days until Christmas: 156
 
-Days until 2025: 164
+Days until 2025: 163
 
-Days until I become old enough to have sex in Denmark: 252
+Days until I become old enough to have sex in Denmark: 251
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 254
+Days until I get unbanned from both Scratch and (maybe) HTS: 253
 
-Days until I become old enough to drive: 617
+Days until I become old enough to drive: 616 (the RBE of a moab in btd5 iirc)
 
-Days until I turn 17: 982
+Days until I turn 17: 981
 
-Days until I become an adult: 1348
+Days until I become an adult: 1347
 
-Days until I graduate high school: 1413
+Days until I graduate high school: 1412
 
-Days until the end of the 2020s: 1990
+Days until the end of the 2020s: 1989
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
