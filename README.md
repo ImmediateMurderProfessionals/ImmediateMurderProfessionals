@@ -1,7 +1,5 @@
 ![IMG_8537](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/26442d0f-657d-4296-abfe-24cf11f0244a)
 
-whoever added izuku midoriya to fortnite should kill himself NOW
-
 https://en.wikipedia.org/wiki/User:BombCraft8 (that's me)
 
 My GD account got disabled and now I want to
@@ -23,6 +21,8 @@ Hi! I am BombCraft, and this is my unfinished README.md/bio!
 Why the FUCK did GD Cologne block me
 
 Counters until notable dates:
+
+Days until my Wikipedia account becomes extended confirmed: 25
 
 Days until I begin high school: 37
 
