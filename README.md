@@ -26,35 +26,35 @@ Counters until notable dates:
 
 Days until my Wikipedia account becomes extended confirmed: 24
 
-Days until I begin high school: 36
+Days until I begin high school: 35
 
-Days until the new Zelda game releases: 67
+Days until the new Zelda game releases: 66
 
-Days until the baseball season ends: nice
+Days until the baseball season ends: 68
 
-Days until Halloween: 101
+Days until Halloween: 100
 
-Days until you will vote for Biden (provided you are 18+ and from the US): 106
+Days until you will vote for Biden (provided you are 18+ and from the US): 105
 
-Days until Thanksgiving: 129
+Days until Thanksgiving: 128
 
-Days until Christmas: 156
+Days until Christmas: 155
 
-Days until 2025: 163
+Days until 2025: 162
 
-Days until I become old enough to have sex in Denmark: 251
+Days until I become old enough to have sex in Denmark: 250
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 253
+Days until I get unbanned from both Scratch and (maybe) HTS: 252
 
-Days until I become old enough to drive: 616 (the RBE of a moab in btd5 iirc)
+Days until I become old enough to drive: 615
 
-Days until I turn 17: 981
+Days until I turn 17: 980
 
-Days until I become an adult: 1347
+Days until I become an adult: 1346
 
-Days until I graduate high school: 1412
+Days until I graduate high school: 1411
 
-Days until the end of the 2020s: 1989
+Days until the end of the 2020s: 1988
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
