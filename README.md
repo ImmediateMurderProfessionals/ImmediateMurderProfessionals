@@ -24,37 +24,37 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 21
+Days until my Wikipedia account becomes extended confirmed: 20
 
-Days until I begin high school: 32
+Days until I begin high school: 31
 
-Days until the new Zelda game releases: 63
+Days until the new Zelda game releases: 62
 
-Days until the baseball season ends: 65
+Days until the baseball season ends: 64
 
-Days until Halloween: 97
+Days until Halloween: 96
 
-Days until the election: 102
+Days until the election: 101
 
-Days until Thanksgiving: 125
+Days until Thanksgiving: 124
 
-Days until Christmas: 152
+Days until Christmas: 151
 
-Days until 2025: 159
+Days until 2025: 158
 
-Days until I become old enough to have sex in Denmark: 247
+Days until I become old enough to have sex in Denmark: 246
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 249
+Days until I get unbanned from both Scratch and (maybe) HTS: 248
 
-Days until I become old enough to drive: 612
+Days until I become old enough to drive: 611
 
-Days until I turn 17: 977
+Days until I turn 17: 976
 
-Days until I become an adult: 1343
+Days until I become an adult: 1342
 
-Days until I graduate high school: 1408
+Days until I graduate high school: 1407
 
-Days until the end of the 2020s: 1985
+Days until the end of the 2020s: Literally 1984
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
