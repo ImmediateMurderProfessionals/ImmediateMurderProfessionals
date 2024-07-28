@@ -24,7 +24,7 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 18
+Days until my Wikipedia account becomes extended confirmed: 17
 
 Days until I begin high school: 29
 
