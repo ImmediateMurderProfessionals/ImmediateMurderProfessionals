@@ -26,6 +26,8 @@ Counters until notable dates:
 
 Days until my Wikipedia account becomes extended confirmed: 12
 
+Days until the Murder Drones finale: 21
+
 Days until I begin high school: 24
 
 Days until the new Zelda game releases: 55
