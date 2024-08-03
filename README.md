@@ -58,6 +58,26 @@ Days until I graduate high school: 1399
 
 Days until the end of the 2020s: 1976
 
+I am currently speedrunning:
+
+- Getting dominated in bed by a furry (current timer: 5,241 days, goal: sub-6,000 days, goal expires in 759 days on September 1, 2026)
+
+- Getting unbanned from HTS (current timer: 455 days, goal: sub-800 days, goal expires in 345 days on July 14, 2025)
+
+- Getting unbanned in GD (current timer: 27 days, goal: sub-90 days, goal expires in 63 days on October 5, 2024)
+
+- Getting unbanned from Ayup Public (current timer: 0 days, goal: sub-7 days, goal expires in 7 days on August 10, 2024)
+
+- Getting unbanned from Scratch (current timer: 418 days, goal: sub-750 days, goal expires in 332 days on July 1, 2025)
+
+- Getting creator points (current timer: 356 days, goal: sub-250 days, goal expired 106 days ago on April 21, 2024)
+
+- Getting a mythic rate (current timer: 863 days, goal: sub-5 years (1,826 days), goal expires in 963 days on March 24, 2027)
+
+- Becoming a GD mod (current timer: 863 days, goal: sub-5 years (1,826 days), goal expires in 963 days on March 24, 2027)
+
+- Becoming a GD elder mod (current timer: 863 days, goal: sub-8 years (2,922 days), goal expires in 2,059 days on March 24, 2030)
+
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
 I may come back to BTD5 in the future...
