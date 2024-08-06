@@ -24,15 +24,15 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 9
+Days until my Wikipedia account becomes extended confirmed: 8
 
-Days until the Murder Drones finale: 18
+Days until the Murder Drones finale: 17
 
-Days until I begin high school: 21
+Days until I begin high school: 20
 
-Days until the new Zelda game releases: 52
+Days until the new Zelda game releases: 51
 
-Days until the baseball season ends: 54
+Days until the baseball season ends: 53
 
 Days until Halloween: 86
 
@@ -44,17 +44,17 @@ Days until Christmas: 141
 
 Days until 2025: 148
 
-Days until I become old enough to have sex in Denmark: 236
+Days until I become old enough to have sex in Denmark: 235
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 238
+Days until I get unbanned from both Scratch and (maybe) HTS: 237
 
-Days until it becomes legal for Split72 to dominate me in bed: 601 (why i have to wait so long grr)
+Days until it becomes legal for Split72 to dominate me in bed: 600 (why i have to wait so long grr)
 
-Days until I turn 17: 966
+Days until I turn 17: 965
 
-Days until I become an adult: 1332
+Days until I become an adult: 1331
 
-Days until I graduate high school: 1397
+Days until I graduate high school: 1396
 
 Days until the end of the 2020s: 1974
 
