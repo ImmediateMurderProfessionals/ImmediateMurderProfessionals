@@ -60,23 +60,23 @@ Days until the end of the 2020s: 1974
 
 I am currently speedrunning:
 
-- Getting dominated in bed by a furry (current timer: 5,243 days, goal: sub-6,000 days, goal expires in 757 days on September 1, 2026)
+- Getting dominated in bed by a furry (current timer: 5,244 days, goal: sub-6,000 days, goal expires in 756 days on September 1, 2026)
 
-- Getting unbanned from HTS (current timer: 457 days, goal: sub-800 days, goal expires in 343 days on July 14, 2025)
+- Getting unbanned from HTS (current timer: 458 days, goal: sub-800 days, goal expires in 342 days on July 14, 2025)
 
-- Getting unbanned in GD (current timer: 29 days, goal: sub-90 days, goal expires in 61 days on October 5, 2024)
+- Getting unbanned in GD (current timer: 30 days, goal: sub-90 days, goal expires in 60 days on October 5, 2024)
 
-- Getting unbanned from Ayup Public (current timer: 2 days, goal: sub-7 days, goal expires in 5 days on August 10, 2024)
+- Getting unbanned from Ayup Public (current timer: 3 days, goal: sub-7 days, goal expires in 4 days on August 10, 2024)
 
-- Getting unbanned from Scratch (current timer: 420 days, goal: sub-750 days, goal expires in 330 days on July 1, 2025)
+- Getting unbanned from Scratch (current timer: 421 days, goal: sub-750 days, goal expires in 329 days on July 1, 2025)
 
-- Getting creator points (current timer: 358 days, goal: sub-250 days, goal expired 108 days ago on April 21, 2024)
+- Getting creator points (current timer: 359 days, goal: sub-250 days, goal expired 109 days ago on April 21, 2024)
 
-- Getting a mythic rate (current timer: 865 days, goal: sub-5 years (1,826 days), goal expires in 961 days on March 24, 2027)
+- Getting a mythic rate (current timer: 866 days, goal: sub-5 years (1,826 days), goal expires in 960 days on March 24, 2027)
 
-- Becoming a GD mod (current timer: 865 days, goal: sub-5 years (1,826 days), goal expires in 961 days on March 24, 2027)
+- Becoming a GD mod (current timer: 866 days, goal: sub-5 years (1,826 days), goal expires in 960 days on March 24, 2027)
 
-- Becoming a GD elder mod (current timer: 865 days, goal: sub-8 years (2,922 days), goal expires in 2,057 days on March 24, 2030)
+- Becoming a GD elder mod (current timer: 866 days, goal: sub-8 years (2,922 days), goal expires in 2,056 days on March 24, 2030)
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
