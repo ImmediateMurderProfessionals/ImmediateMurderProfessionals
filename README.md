@@ -10,8 +10,6 @@ My GD account got disabled and now I want to
 
 ![download (42)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/d9f19fe9-cfab-45d1-a92a-6474943a1277)
 
-More info: I was false banned because Hexagon mass reported my levels
-
 Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to make Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31
 
 ![download (18)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/c1f835a7-1bb7-4ed7-b29e-16e13446df39)
@@ -24,59 +22,59 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 8
+Days until my Wikipedia account becomes extended confirmed: 7
 
-Days until the Murder Drones finale: 17
+Days until the Murder Drones finale: 16
 
-Days until I begin high school: 20
+Days until I begin high school: 19
 
-Days until the new Zelda game releases: 51
+Days until the new Zelda game releases: 50
 
-Days until the baseball season ends: 53
+Days until the baseball season ends: 52
 
-Days until Halloween: 86
+Days until Halloween: 85
 
-Days until the election: 91
+Days until the election: 90
 
-Days until Thanksgiving: 114
+Days until Thanksgiving: 113
 
-Days until Christmas: 141
+Days until Christmas: 140
 
-Days until 2025: 148
+Days until 2025: 147
 
-Days until I become old enough to have sex in Denmark: 235
+Days until I become old enough to have sex in Denmark: 234
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 237
+Days until I get unbanned from both Scratch and (maybe) HTS: 236
 
-Days until it becomes legal for Split72 to dominate me in bed: 600 (why i have to wait so long grr)
+Days until it becomes legal for Split72 to dominate me in bed: 599 (why i have to wait so long grr)
 
-Days until I turn 17: 965
+Days until I turn 17: 964
 
-Days until I become an adult: 1331
+Days until I become an adult: 1330
 
-Days until I graduate high school: 1396
+Days until I graduate high school: 1395
 
-Days until the end of the 2020s: 1974
+Days until the end of the 2020s: 1973
 
 I am currently speedrunning:
 
-- Getting dominated in bed by a furry (current timer: 5,244 days, goal: sub-6,000 days, goal expires in 756 days on September 1, 2026)
+- Getting dominated in bed by a furry (current timer: 5,245 days, goal: sub-6,000 days, goal expires in 755 days on September 1, 2026)
 
-- Getting unbanned from HTS (current timer: 458 days, goal: sub-800 days, goal expires in 342 days on July 14, 2025)
+- Getting unbanned from HTS (current timer: 459 days, goal: sub-800 days, goal expires in 341 days on July 14, 2025)
 
-- Getting unbanned in GD (current timer: 30 days, goal: sub-90 days, goal expires in 60 days on October 5, 2024)
+- Getting unbanned in GD (current timer: 31 days, goal: sub-90 days, goal expires in 59 days on October 5, 2024)
 
-- Getting unbanned from Ayup Public (current timer: 3 days, goal: sub-7 days, goal expires in 4 days on August 10, 2024)
+- Getting unbanned from Ayup Public (current timer: 4 days, goal: sub-7 days, goal expires in 3 days on August 10, 2024)
 
-- Getting unbanned from Scratch (current timer: 421 days, goal: sub-750 days, goal expires in 329 days on July 1, 2025)
+- Getting unbanned from Scratch (current timer: 422 days, goal: sub-750 days, goal expires in 328 days on July 1, 2025)
 
-- Getting creator points (current timer: 359 days, goal: sub-250 days, goal expired 109 days ago on April 21, 2024)
+- Getting creator points (current timer: 360 days, goal: sub-250 days, goal expired 110 days ago on April 21, 2024)
 
-- Getting a mythic rate (current timer: 866 days, goal: sub-5 years (1,826 days), goal expires in 960 days on March 24, 2027)
+- Getting a mythic rate (current timer: 867 days, goal: sub-5 years (1,826 days), goal expires in 959 days on March 24, 2027)
 
-- Becoming a GD mod (current timer: 866 days, goal: sub-5 years (1,826 days), goal expires in 960 days on March 24, 2027)
+- Becoming a GD mod (current timer: 867 days, goal: sub-5 years (1,826 days), goal expires in 959 days on March 24, 2027)
 
-- Becoming a GD elder mod (current timer: 866 days, goal: sub-8 years (2,922 days), goal expires in 2,056 days on March 24, 2030)
+- Becoming a GD elder mod (current timer: 867 days, goal: sub-8 years (2,922 days), goal expires in 2,055 days on March 24, 2030)
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
