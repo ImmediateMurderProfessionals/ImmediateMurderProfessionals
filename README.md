@@ -8,8 +8,6 @@ My GD account got disabled and now I want to
 
 ⠀>>>>>>>>>Myself>>>>>>>>>>
 
-
-
 Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to make Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31
 
 ![download (18)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/c1f835a7-1bb7-4ed7-b29e-16e13446df39)
@@ -95,6 +93,8 @@ Quote wall:
 "Nonsense is a form of art." -BombCraft, 2024
 
 "i am divinely protected and those who wronged me will be punished by god actually" -Cerufiffy, 2023
+
+"they're called skibidi slicers because i want to slice every kid that likes skibidi toilet into a gazillion pieces" -BombCraft, 2024
 
 "At the end of the day your brain is just a meat computer in a bone cockpit piloting a skin robot! You think the world makes sense? Nothing makes sense! So you might as well make nonsense! Think about it!" -🥚, 2024
 
