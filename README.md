@@ -20,59 +20,59 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until my Wikipedia account becomes extended confirmed: 6
+Days until my Wikipedia account becomes extended confirmed: 5
 
-Days until the Murder Drones finale: 15
+Days until the Murder Drones finale: 14
 
-Days until I begin high school: 18
+Days until I begin high school: 17
 
-Days until the new Zelda game releases: 49
+Days until the new Zelda game releases: 48
 
-Days until the baseball season ends: 51
+Days until the baseball season ends: 50
 
-Days until Halloween: 84
+Days until Halloween: 83
 
-Days until the election: 89
+Days until the election: 88
 
-Days until Thanksgiving: 112
+Days until Thanksgiving: 111
 
-Days until Christmas: 139
+Days until Christmas: 138
 
-Days until 2025: 146
+Days until 2025: 145
 
-Days until I become old enough to have sex in Denmark: 233
+Days until I become old enough to have sex in Denmark: 232
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 235
+Days until I get unbanned from both Scratch and (maybe) HTS: 234
 
-Days until it becomes legal for Split72 to dominate me in bed: 598 (why i have to wait so long grr)
+Days until it becomes legal for Split72 to dominate me in bed: 597 (why i have to wait so long grr)
 
-Days until I turn 17: 963
+Days until I turn 17: 962
 
-Days until I become an adult: 1329
+Days until I become an adult: 1328
 
 Days until I graduate high school: 1394
 
-Days until the end of the 2020s: 1972
+Days until the end of the 2020s: 1971
 
 I am currently speedrunning:
 
-- Getting dominated in bed by a furry (current timer: 5,246 days, goal: sub-6,000 days, goal expires in 754 days on September 1, 2026)
+- Getting dominated in bed by a furry (current timer: 5,247 days, goal: sub-6,000 days, goal expires in 753 days on September 1, 2026)
 
-- Getting unbanned from HTS (current timer: 460 days, goal: sub-800 days, goal expires in 340 days on July 14, 2025)
+- Getting unbanned from HTS (current timer: 461 days, goal: sub-800 days, goal expires in 339 days on July 14, 2025)
 
-- Getting unbanned in GD (current timer: 32 days, goal: sub-90 days, goal expires in 58 days on October 5, 2024)
+- Getting unbanned in GD (current timer: 33 days, goal: sub-90 days, goal expires in 57 days on October 5, 2024)
 
-- Getting unbanned from Ayup Public (current timer: 5 days, goal: sub-7 days, goal expires in 2 days on August 10, 2024)
+- Getting unbanned from Ayup Public (current timer: 6 days, goal: sub-7 days, goal expires in 1 day on August 10, 2024)
 
-- Getting unbanned from Scratch (current timer: 423 days, goal: sub-750 days, goal expires in 327 days on July 1, 2025)
+- Getting unbanned from Scratch (current timer: 424 days, goal: sub-750 days, goal expires in 326 days on July 1, 2025)
 
-- Getting creator points (current timer: 361 days, goal: sub-250 days, goal expired 111 days ago on April 21, 2024)
+- Getting creator points (current timer: 362 days, goal: sub-250 days, goal expired 112 days ago on April 21, 2024)
 
-- Getting a mythic rate (current timer: 868 days, goal: sub-5 years (1,826 days), goal expires in 958 days on March 24, 2027)
+- Getting a mythic rate (current timer: 869 days, goal: sub-5 years (1,826 days), goal expires in 957 days on March 24, 2027)
 
-- Becoming a GD mod (current timer: 868 days, goal: sub-5 years (1,826 days), goal expires in 958 days on March 24, 2027)
+- Becoming a GD mod (current timer: 869 days, goal: sub-5 years (1,826 days), goal expires in 957 days on March 24, 2027)
 
-- Becoming a GD elder mod (current timer: 868 days, goal: sub-8 years (2,922 days), goal expires in 2,054 days on March 24, 2030)
+- Becoming a GD elder mod (current timer: 869 days, goal: sub-8 years (2,922 days), goal expires in 2,053 days on March 24, 2030)
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
