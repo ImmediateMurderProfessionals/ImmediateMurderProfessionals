@@ -22,6 +22,8 @@ Days until the new Zelda game releases: 36
 
 Days until the baseball season ends: 38
 
+Days until I get unbanned from commenting in GD: 61
+
 Days until Halloween: 71
 
 Days until Kamala Harris wins: 76
