@@ -38,7 +38,7 @@ Days until I become old enough to have sex in Denmark: 220
 
 Days until I get unbanned from both Scratch and (maybe) HTS: 222
 
-Days until it becomes legal for Split72 to dominate me in bed: 585 (why i have to wait so long grr)
+Days until I become old enough to drive: 585
 
 Days until I turn 17: 950
 
