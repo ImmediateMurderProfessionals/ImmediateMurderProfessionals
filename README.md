@@ -1,5 +1,3 @@
-![IMG_8537](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/26442d0f-657d-4296-abfe-24cf11f0244a)
-
 https://en.wikipedia.org/wiki/User:BombCraft8 (that's me)
 
 Here's a preview of my fixed version of the Hsotopic table btw, and sorry but I had to make Hx-30 unstable because scientific accuracy (odd-odd nuclides aren't stable past Z=7), but I did make it have a half-life of 907,371,086 years, so Hx-30 is still found in nature but in smaller quantities because most of it has decayed into Ic-30 or Li-30, but Hx-30 isn't as common as the stable Hx-29 and Hx-31
@@ -14,39 +12,37 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the Murder Drones finale: 0
+Days until I begin high school: 2
 
-Days until I begin high school: 3
+Days until the new Zelda game releases: 33
 
-Days until the new Zelda game releases: 34
+Days until the baseball season ends: 33
 
-Days until the baseball season ends: 36
+Days until I get unbanned from commenting in GD: 59<x<363
 
-Days until I get unbanned from commenting in GD: 60
+Days until Halloween: 68
 
-Days until Halloween: nice
+Days until Kamala Harris wins: 73
 
-Days until Kamala Harris wins: 74
+Days until Thanksgiving: 96
 
-Days until Thanksgiving: 97
+Days until Christmas: 123
 
-Days until Christmas: 124
+Days until 2025: 130
 
-Days until 2025: 131
+Days until I become old enough to have sex in Denmark: 217
 
-Days until I become old enough to have sex in Denmark: 218
+Days until I get unbanned from both Scratch and (maybe) HTS: 219
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 220
+Days until I become old enough to drive: 582
 
-Days until I become old enough to drive: 583
+Days until I turn 17: 947
 
-Days until I turn 17: 948
+Days until I become an adult: 1313
 
-Days until I become an adult: 1314
+Days until I graduate high school: 1379
 
-Days until I graduate high school: 1380
-
-Days until the end of the 2020s: 1957
+Days until the end of the 2020s: 1956
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
