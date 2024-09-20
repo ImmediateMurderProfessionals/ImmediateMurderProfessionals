@@ -8,7 +8,7 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the new Zelda game releases: 17
+Days until the new Zelda game releases: 7
 
 Days until I get unbanned from commenting in GD: 0<x<191
 
