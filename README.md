@@ -8,35 +8,35 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the new Zelda game releases: 3
+Days until the new Zelda game releases: 2
 
-Days until the new episode of The Amazing Digital Circus releases: 11
+Days until the new episode of The Amazing Digital Circus releases: 10
 
-Days until I get unbanned from commenting in GD: 0<x<187
+Days until I get unbanned from commenting in GD: 0<x<186
 
-Days until Halloween: 38
+Days until Halloween: 37
 
-Days until Kamala Harris wins: 43
+Days until Kamala Harris wins: 42
 
-Days until Thanksgiving: 66
+Days until Thanksgiving: 65
 
-Days until Christmas: 93
+Days until Christmas: 92
 
-Days until 2025: 100
+Days until 2025: 99
 
-Days until I become old enough to have sex in Denmark: 187
+Days until I become old enough to have sex in Denmark: 186
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 189
+Days until I get unbanned from both Scratch and (maybe) HTS: 188
 
-Days until I become old enough to drive: 552
+Days until I become old enough to drive: 551
 
-Days until I turn 17: 917
+Days until I turn 17: 916
 
-Days until I become an adult: 1283
+Days until I become an adult: 1282
 
-Days until I graduate high school: 1349
+Days until I graduate high school: 1348
 
-Days until the end of the 2020s: 1926
+Days until the end of the 2020s: 1925
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
@@ -75,6 +75,8 @@ Quote wall:
 "Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
 
 "I'm better in bed than my viewers." -Chess Simp, 2025
+
+"Please, PLEASE FOR THE LOVE OF GOD. Stop posting. Every living hour, I get a new notification, that says "BombCraft has posted something very important zbcdsifbsodih" and it's just your random freaking nonsense. If you do not stop I will tell your local authorities and tell them you're murdering someone, violently, like we're in Saws." -d8fb, 2024
 
 "Infinite punishment for finite actions is stupid." -Anyone with a brain, date unknown
 
