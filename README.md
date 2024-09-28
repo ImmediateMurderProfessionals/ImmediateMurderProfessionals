@@ -8,33 +8,33 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the new episode of The Amazing Digital Circus releases: 8
+Days until the new episode of The Amazing Digital Circus releases: 6
 
-Days until I get unbanned from commenting in GD: 0<x<184
+Days until I get unbanned from commenting in GD: 0<x<182
 
-Days until Halloween: 35
+Days until Halloween: 33
 
-Days until Kamala Harris wins: 40
+Days until Kamala Harris wins: 38
 
-Days until Thanksgiving: 63
+Days until Thanksgiving: 61
 
-Days until Christmas: 90
+Days until Christmas: 88
 
-Days until 2025: 97
+Days until 2025: 95
 
-Days until I become old enough to have sex in Denmark: 184
+Days until I become old enough to have sex in Denmark: 182
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 186
+Days until I get unbanned from both Scratch and (maybe) HTS: 184
 
-Days until I become old enough to drive: 549
+Days until I become old enough to drive: 547
 
-Days until I turn 17: 914
+Days until I turn 17: 912
 
-Days until I become an adult: 1280
+Days until I become an adult: 1278
 
-Days until I graduate high school: 1346
+Days until I graduate high school: 1344
 
-Days until the end of the 2020s: 1923
+Days until the end of the 2020s: 1921
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
@@ -73,6 +73,8 @@ Quote wall:
 "Scratch Team do their actual job challenge (impossible)" -Hexagon, 2024 (This is the only thing Hexagon has ever said that is factually correct)
 
 "I'm better in bed than my viewers." -Chess Simp, 2025
+
+"The problem with men is we have a brain and dick but not enough blood flow for them both. I wish we could control which one gets blood flow at a given time. -BombCraft, 2024 (modified from a Robin Williams quote)
 
 "Please, PLEASE FOR THE LOVE OF GOD. Stop posting. Every living hour, I get a new notification, that says "BombCraft has posted something very important zbcdsifbsodih" and it's just your random freaking nonsense. If you do not stop I will tell your local authorities and tell them you're murdering someone, violently, like we're in Saws." -d8fb, 2024
 
