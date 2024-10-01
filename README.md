@@ -8,33 +8,33 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the new episode of The Amazing Digital Circus releases: 5
+Days until the new episode of The Amazing Digital Circus releases: 3
 
-Days until I get unbanned from commenting in GD: 0<x<181
+Days until I get unbanned from commenting in GD: 0<x<179
 
-Days until Halloween: 32
+Days until Halloween: 30
 
-Days until Kamala Harris wins: 37
+Days until Kamala Harris wins: 35
 
-Days until Thanksgiving: 60
+Days until Thanksgiving: 58
 
-Days until Christmas: 87
+Days until Christmas: 85
 
-Days until 2025: 94
+Days until 2025: 92
 
-Days until I become old enough to have sex in Denmark: 181
+Days until I become old enough to have sex in Denmark: 179
 
-Days until I get unbanned from both Scratch and (maybe) HTS: 183
+Days until I get unbanned from both Scratch and (maybe) HTS: 181
 
-Days until I become old enough to drive: 546
+Days until I become old enough to drive: 544
 
-Days until I turn 17: 911
+Days until I turn 17: 909
 
-Days until I become an adult: 1277
+Days until I become an adult: 1275
 
-Days until I graduate high school: 1343
+Days until I graduate high school: 1341
 
-Days until the end of the 2020s: 1920
+Days until the end of the 2020s: 1918
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
