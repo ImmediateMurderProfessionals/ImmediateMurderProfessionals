@@ -18,6 +18,8 @@ Days until Christmas: 74
 
 Days until 2025: 81
 
+Days until Kamala Harris's inauguration: 100
+
 Days until I become old enough to have sex in Denmark: 168
 
 Days until I become old enough to drive: 533
