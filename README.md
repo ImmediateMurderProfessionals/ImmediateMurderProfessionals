@@ -8,29 +8,29 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until Halloween: 5
+Days until Halloween: 4
 
-Days until Kamala Harris wins: 10
+Days until Kamala Harris wins: 9
 
-Days until Thanksgiving: 33
+Days until Thanksgiving: 32
 
-Days until Christmas: 60
+Days until Christmas: 59
 
-Days until 2025: 67
+Days until 2025: 66
 
-Days until Kamala Harris's inauguration: 86
+Days until Kamala Harris's inauguration: 85
 
-Days until I become old enough to have sex in Denmark: 154
+Days until I become old enough to have sex in Denmark: 153
 
-Days until I become old enough to drive: 519
+Days until I become old enough to drive: 518
 
-Days until I turn 17: 884
+Days until I turn 17: 883
 
-Days until I become an adult: 1250
+Days until I become an adult: 1249
 
-Days until I graduate high school: 1316
+Days until I graduate high school: 1315
 
-Days until the end of the 2020s: 1893
+Days until the end of the 2020s: 1892
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
 
