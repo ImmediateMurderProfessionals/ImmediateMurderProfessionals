@@ -14,6 +14,8 @@ Days until Kamala Harris wins: 8
 
 Days until Thanksgiving: 31
 
+Days until I can post F3lixsram's personal info to Doxbin: 42
+
 Days until Christmas: 58
 
 Days until 2025: 65
