@@ -30,6 +30,8 @@ Days until I become an adult: 1241
 
 Days until I graduate high school: 1307
 
+Days until I vote for Kamala Harris's 2nd term: 1464
+
 Days until the end of the 2020s: 1884
 
 I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
