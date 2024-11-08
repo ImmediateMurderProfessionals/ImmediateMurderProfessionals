@@ -32,10 +32,6 @@ Days until I vote for someone who actually has a functioning brain: 1460
 
 Days until the end of the 2020s: 1880
 
-I plan to start modding Cookie Clicker (I actually suck ass at JS, but I am good at pattern recognition which I could prob use to add new upgrades and achievements and shit like that)
-
-I may come back to BTD5 in the future...
-
 Discord: @bombcraft
 
 Nintendo switch friend code: SW-2753-1792-8503
