@@ -18,13 +18,13 @@ Days until 2025: 45
 
 Days until we get our first convicted felon president: 64
 
-Days until I become old enough to have sex in Denmark: 132
+Days until I become old enough to have sex in Poland: 132
 
-Days until I become old enough to drive: 497
+Days until I become old enough to have sex in Massachusetts: 497
 
-Days until I turn 17: 862
+Days until I become old enough to have sex in New York: 862
 
-Days until I become an adult: 1228
+Days until I become old enough to have sex in California: 1228
 
 Days until I graduate high school: 1294
 
