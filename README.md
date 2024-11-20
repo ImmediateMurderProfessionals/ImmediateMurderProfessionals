@@ -8,29 +8,29 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until KENTUCKYFRIEDSTOLAS releases: 10
+Days until KENTUCKYFRIEDSTOLAS releases: 8
 
-Days until I can post F3lixsram's personal info to Doxbin: 21
+Days until I can post F3lixsram's personal info to Doxbin: 19
 
-Days until Christmas: 38
+Days until Christmas: 36
 
-Days until 2025: 44
+Days until 2025: 42
 
-Days until we get our first convicted felon president: 63
+Days until we get our first convicted felon president: 61
 
-Days until I become old enough to have sex in Poland: 131
+Days until I become old enough to have sex in Poland: 129
 
-Days until I become old enough to have sex in Massachusetts: 496
+Days until I become old enough to have sex in Massachusetts: 494
 
-Days until I become old enough to have sex in New York: 861
+Days until I become old enough to have sex in New York: 859
 
-Days until I become old enough to have sex in California: 1227
+Days until I become old enough to have sex in California: 1225
 
-Days until I graduate high school: 1293
+Days until I graduate high school: 1291
 
-Days until the 2028 election or smth idk: 1450
+Days until the 2028 election or smth idk: 1448
 
-Days until the end of the 2020s: 1870
+Days until the end of the 2020s: 1868
 
 Discord: @bombcraft
 
@@ -52,8 +52,6 @@ Quote wall:
 
 "At the end of the day your brain is just a meat computer in a bone cockpit piloting a skin robot! You think the world makes sense? Nothing makes sense! So you might as well make nonsense! Think about it!" -🥚, 2024
 
-"Bombium has 2 stable isotopes." -Anyone with a brain, 2024
-
 "I'll have the Neapolitan Cappuccino, more cappu than ccino, make sure it has no more than 4 ounces of milk, the beans won't have the right texture otherwise, and make sure that they spell my name correctly on the cup. They always put foxy or roxy, I hate that. *BREATH* If you can't handle that, I'll have a Venti Traditional Misto, please use soy milk with 2 blonde shots of Affrogato AND Ristretto! I'd also love 3 Vanilla pumps at the very bottom then, add the coffee after. then-" -Moxxie "Possum" Knolastname (2003devin's boyfriend), 2021
 
 "Poetry makes me want to kill myself." -BombCraft, 2024
@@ -68,22 +66,10 @@ Quote wall:
 
 "Please, PLEASE FOR THE LOVE OF GOD. Stop posting. Every living hour, I get a new notification, that says "BombCraft has posted something very important zbcdsifbsodih" and it's just your random freaking nonsense. If you do not stop I will tell your local authorities and tell them you're murdering someone, violently, like we're in Saws." -d8fb, 2024
 
-"Infinite punishment for finite actions is stupid." -Anyone with a brain, date unknown
-
 "I want Sir Pentious to be a slithering tryhard in bed with me" -Gooseworx, 2018
-
-"The belief that I am delusional is a delusion in and of itself" -BombCraft, 2024
 
 "You can do anything in art, as long as it works." -STAR Reading Test, 1996
 
 "Never believe anything you hear on the internet." -George Oregon, First King of the United Provinces, 1492
 
-"Using either github or replit as a 12 year old violates the terms of service of either site. I strongly recommend you drop the topic." -Reinhardt-C, 2024
-
 "More coming soon!" -BombCraft, 2024
-
-WE TURNING EVERYTHING INTO MARKETABLE PLUSHIES WITH THIS ONE
-![always has been (1)](https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/552ff90f-4c40-45e4-8db7-d5d8b9d9c68f)
-
-The H periodic table:
-<img width="937" alt="Screenshot 2024-05-14 at 12 28 33 PM" src="https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/assets/156855194/815844cc-a233-409e-956d-af4fca237b91">
