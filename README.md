@@ -8,29 +8,29 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until KENTUCKYFRIEDSTOLAS releases: 5
+Days until KENTUCKYFRIEDSTOLAS releases: 4
 
-Days until I can post F3lixsram's personal info to Doxbin: 16
+Days until I can post F3lixsram's personal info to Doxbin: 15
 
-Days until Christmas: 33
+Days until Christmas: 32
 
-Days until 2025: 39
+Days until 2025: 38
 
-Days until we get our first convicted felon president: 58
+Days until we get our first convicted felon president: 57
 
-Days until I become old enough to have sex in Poland: 126
+Days until I become old enough to have sex in Poland: 125
 
-Days until I become old enough to have sex in Massachusetts: 491
+Days until I become old enough to have sex in Massachusetts: 490
 
-Days until I become old enough to have sex in New York: 856
+Days until I become old enough to have sex in New York: 855
 
-Days until I become old enough to have sex in California: 1222
+Days until I become old enough to have sex in California: 1221
 
-Days until I graduate high school: 1288
+Days until I graduate high school: 1287
 
-Days until the 2028 election or smth idk: 1445
+Days until the 2028 election or smth idk: 1444
 
-Days until the end of the 2020s: 1865
+Days until the end of the 2020s: 1864
 
 Discord: @bombcraft
 
