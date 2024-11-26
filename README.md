@@ -8,7 +8,7 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until KENTUCKYFRIEDSTOLAS releases: 3
+Days until STOLASCOIN replaces the Bulgarian lev: 3
 
 Days until I can post F3lixsram's personal info to Doxbin: 14
 
