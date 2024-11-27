@@ -8,31 +8,31 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until STOLASCOIN replaces the Bulgarian lev: 2
+Days until STOLASCOIN replaces the Bulgarian lev: 1
 
-Days until I can post F3lixsram's personal info to Doxbin: 13
+Days until I can post F3lixsram's personal info to Doxbin: 12
 
-Days until Christmas: 30
+Days until Christmas: 29
 
-Days until 2025: 36
+Days until 2025: 35
 
-Days until we get our first convicted felon president: 55
+Days until we get our first convicted felon president: 54
 
-Days until the space gauntlet deadline: 113
+Days until the space gauntlet deadline: 112
 
-Days until I become old enough to have sex in Poland: 123
+Days until I become old enough to have sex in Poland: 122
 
-Days until I become old enough to have sex in Massachusetts: 488
+Days until I become old enough to have sex in Massachusetts: 487
 
-Days until I become old enough to have sex in New York: 853
+Days until I become old enough to have sex in New York: 852
 
-Days until I become old enough to have sex in California: 1219
+Days until I become old enough to have sex in California: 1218
 
-Days until I graduate high school: 1285
+Days until I graduate high school: 1284
 
-Days until the 2028 election or smth idk: 1442
+Days until the 2028 election or smth idk: 1441
 
-Days until the end of the 2020s: 1862
+Days until the end of the 2020s: 1861
 
 Discord: @bombcraft
 
