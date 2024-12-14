@@ -70,6 +70,4 @@ Quote wall:
 
 "You can do anything in art, as long as it works." -STAR Reading Test, 1996
 
-"Never believe anything you hear on the internet." -George Oregon, First King of the United Provinces, 1492
-
 "More coming soon!" -BombCraft, 2024
