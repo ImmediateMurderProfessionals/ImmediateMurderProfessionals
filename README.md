@@ -8,29 +8,27 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until Christmas: 1
+Days until 2025: 7
 
-Days until 2025: 8
+Days until Project 2025: 26
 
-Days until Project 2025: 27
+Days until the space gauntlet deadline: 84
 
-Days until the space gauntlet deadline: 85
+Days until I become old enough to have sex in Femboy Land: 94
 
-Days until I become old enough to have sex in Femboy Land: 95
+Days until I become old enough to have sex in Massachusetts: 459
 
-Days until I become old enough to have sex in Massachusetts: 460
+Days until I become old enough to have sex in New York: 824
 
-Days until I become old enough to have sex in New York: 825
+Days until I become old enough to have sex in California: 1190
 
-Days until I become old enough to have sex in California: 1191
+Days until I graduate high school: 1256
 
-Days until I graduate high school: 1257
+Days until the 2028 election or smth idk: 1413
 
-Days until the 2028 election or smth idk: 1414
+Days until the end of the 2020s: 1833
 
-Days until the end of the 2020s: 1834
-
-Days until the heat death of the universe: 4249
+Days until the heat death of the universe: 4248
 
 Discord: @bombcraft
 
