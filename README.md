@@ -14,7 +14,7 @@ Days until the space gauntlet deadline: 63
 
 Days until I become old enough to have sex in Femboy Land: 73
 
-Days until 2026: 351
+Days until Gen Beta starts: 351
 
 Days until I become old enough to have sex in Massachusetts: 438
 
