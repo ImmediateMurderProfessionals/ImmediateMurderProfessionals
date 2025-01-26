@@ -2,6 +2,8 @@ https://en.wikipedia.org/wiki/User:BombCraft8 (that's me)
 
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
+I really need to finish this shit
+
 Why the FUCK did GD Cologne block me
 
 Splatoon 3: BombCraft♪#2777
