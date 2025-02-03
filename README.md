@@ -10,27 +10,27 @@ Splatoon 3: BombCraft♪#2777
 
 Counters until notable dates:
 
-Days until the space gauntlet deadline: 45
+Days until the space gauntlet deadline: 44
 
-Days until I become old enough to have sex in Femboy Land: 55
+Days until I become old enough to have sex in Femboy Land: 54
 
-Days until Gen Beta starts: 333
+Days until Gen Beta starts: 332
 
-Days until I become old enough to have sex in Massachusetts: 420
+Days until I become old enough to have sex in Massachusetts: 419
 
-Days until I become old enough to have sex in New York: 785
+Days until I become old enough to have sex in New York: 784
 
-Days until I become old enough to have sex in California: 1151
+Days until I become old enough to have sex in California: 1150
 
-Days until I graduate high school: 1217
+Days until I graduate high school: 1216
 
-Days until I vote for an actually good candidate: 1374
+Days until I vote for an actually good candidate: 1373
 
-Days until said actually good candidate becomes president: 1448
+Days until said actually good candidate becomes president: 1447
 
-Days until the end of the 2020s: 1795
+Days until the end of the 2020s: 1794
 
-Days until the heat death of the universe: 4210
+Days until the heat death of the universe: 4209
 
 Discord: @bombcraft
 
