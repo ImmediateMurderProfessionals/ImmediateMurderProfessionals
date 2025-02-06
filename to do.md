@@ -1,8 +1,5 @@
 # things i need to do
 
-- stop using <br> after each <p>
-- links only work if it's <a>
-- add some unique favicons
 - clean up main site
 - add oshawott skinning inc rules
 - general cleanups
