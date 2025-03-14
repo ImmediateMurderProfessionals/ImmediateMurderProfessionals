@@ -10,6 +10,8 @@ Why the FUCK did GD Cologne block me
 
 Splatoon 3: BombCraft♪#2777
 
+Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfessionals/blob/main/songs%20i%20listen%20to%20sorted%20by%20length
+
 Counters until notable dates:
 
 Days until the space gauntlet deadline: 5
