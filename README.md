@@ -14,27 +14,27 @@ Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfe
 
 Counters until notable dates:
 
-Days until I become old enough to have sex in Femboy Land: 7
+Days until I become old enough to have sex in Femboy Land: 6
 
-Days until Easter: 29
+Days until Easter: 28
 
-Days until Gen Beta starts: 285
+Days until Gen Beta starts: 284
 
-Days until I become old enough to have sex in Massachusetts: 372
+Days until I become old enough to have sex in Massachusetts: 371
 
-Days until I become old enough to have sex in New York: 737
+Days until I become old enough to have sex in New York: 736
 
-Days until I become old enough to have sex in California: 1103
+Days until I become old enough to have sex in California: 1102
 
-Days until I graduate high school: 1169
+Days until I graduate high school: 1168
 
-Days until I vote for an actually good candidate: 1326
+Days until I vote for an actually good candidate: 1325
 
-Days until said actually good candidate becomes president: 1400
+Days until said actually good candidate becomes president: 1399
 
-Days until the end of the 2020s: 1747
+Days until the end of the 2020s: 1746
 
-Days until the heat death of the universe: 4162
+Days until the heat death of the universe: 4161
 
 Discord: @bombcraft
 
