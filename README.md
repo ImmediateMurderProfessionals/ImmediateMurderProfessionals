@@ -14,25 +14,25 @@ Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfe
 
 Counters until notable dates:
 
-Days until Easter: 3
+Days until Easter: 2
 
-Days until Gen Beta starts: 259
+Days until Gen Beta starts: 258
 
-Days until I become old enough to have sex in Massachusetts: 346
+Days until I become old enough to have sex in Massachusetts: 345
 
-Days until I become old enough to have sex in New York: 711
+Days until I become old enough to have sex in New York: 710
 
-Days until I become old enough to have sex in California: 1077
+Days until I become old enough to have sex in California: 1076
 
-Days until I graduate high school: 1143
+Days until I graduate high school: 1142
 
-Days until I vote for an actually good candidate: 1300
+Days until I vote for an actually good candidate: 1299
 
-Days until said actually good candidate becomes president: 1374
+Days until said actually good candidate becomes president: 1373
 
-Days until the end of the 2020s: 1721
+Days until the end of the 2020s: 1720
 
-Days until the heat death of the universe: 4136
+Days until the heat death of the universe: 4135
 
 Discord: @bombcraft
 
