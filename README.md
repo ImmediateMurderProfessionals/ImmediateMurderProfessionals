@@ -1,6 +1,8 @@
-https://en.wikipedia.org/wiki/User:BombCraft8 (that's me)
-
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
+
+I am a Geometry Dash creator (IGN: BombCraft2010) with 0 creator points (I'm trying to get that number to go up), and uhh yeah that's it i guess.
+
+Join my Discord server: https://discord.gg/8t8GZY2kjN
 
 46,XY (in simpler terms: he/him)
 
