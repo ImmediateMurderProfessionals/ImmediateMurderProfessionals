@@ -4,6 +4,8 @@ I am a Geometry Dash creator (IGN: BombCraft2010) with 0 creator points (I'm try
 
 Join my Discord server: https://discord.gg/8t8GZY2kjN
 
+Also join my Chess.com club: https://www.chess.com/club/bombcraft-new-tomfoolery-club
+
 46,XY (in simpler terms: he/him)
 
 I really need to finish this shit
