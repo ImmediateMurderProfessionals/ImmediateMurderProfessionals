@@ -22,11 +22,11 @@ Days until freshman year ends: 2
 
 Days until Gen Beta starts: 212
 
-Days until I become old enough to have sex in Massachusetts: 299
+Days until I turn 16: 299
 
-Days until I become old enough to have sex in New York: 664
+Days until I turn 17: 664
 
-Days until I become old enough to have sex in California: 1030
+Days until I turn 18: 1030
 
 Days until I graduate high school: 1096
 
