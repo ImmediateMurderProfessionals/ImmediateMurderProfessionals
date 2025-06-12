@@ -1,6 +1,6 @@
 Hi! I am BombCraft, and this is my unfinished README.md/bio!
 
-I am a Geometry Dash creator (IGN: BombCraft2010) with 3 creator points.
+I am a Geometry Dash creator (IGN: BombCraft2010) with 5 creator points.
 
 Join my Discord server: https://discord.gg/8t8GZY2kjN
 
@@ -18,23 +18,23 @@ Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfe
 
 Counters until notable dates:
 
-Days until Gen Beta starts: 204
+Days until Gen Beta starts: 203
 
-Days until I turn 16: 291
+Days until I turn 16: 290
 
-Days until I turn 17: 656
+Days until I turn 17: 655
 
-Days until I turn 18: 1022
+Days until I turn 18: 1021
 
-Days until I graduate high school: 1088
+Days until I graduate high school: 1087
 
-Days until I vote for an actually good candidate: 1245
+Days until I vote for an actually good candidate: 1244
 
-Days until said actually good candidate becomes president: 1319
+Days until said actually good candidate becomes president: 1318
 
-Days until the end of the 2020s: 1666
+Days until the end of the 2020s: 1665
 
-Days until the heat death of the universe: 4081
+Days until the heat death of the universe: 4080
 
 Discord: @bombcraft
 
