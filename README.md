@@ -18,23 +18,23 @@ Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfe
 
 Counters until notable dates:
 
-Days until Gen Beta starts: 200
+Days until Gen Beta starts: 199
 
-Days until I turn 16: 287
+Days until I turn 16: 286
 
-Days until I turn 17: 652
+Days until I turn 17: 651
 
-Days until I turn 18: 1018
+Days until I turn 18: 1017
 
-Days until I graduate high school: 1084
+Days until I graduate high school: 1083
 
-Days until I vote for an actually good candidate: 1241
+Days until I vote for an actually good candidate: 1240
 
-Days until said actually good candidate becomes president: 1315
+Days until said actually good candidate becomes president: 1314
 
-Days until the end of the 2020s: 1662
+Days until the end of the 2020s: 1661
 
-Days until the heat death of the universe: 4077
+Days until the heat death of the universe: 4076
 
 Discord: @bombcraft
 
