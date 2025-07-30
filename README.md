@@ -8,9 +8,7 @@ Also join my Chess.com club: https://www.chess.com/club/bombcraft-new-tomfoolery
 
 46,XY (in simpler terms: he/him)
 
-I really need to finish this shit
-
-Why the FUCK did GD Cologne block me
+If you need to contact me for anything, email me at bombcraft2010@gmail.com or send me a message on Discord (my Discord username is just "bombcraft")
 
 Splatoon 3: BombCraft♪#2777
 
@@ -36,7 +34,6 @@ Days until the end of the 2020s: 1617
 
 Days until the heat death of the universe: 4033
 
-Discord: @bombcraft
 
 Nintendo switch friend code: SW-2753-1792-8503
 
