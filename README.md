@@ -6,7 +6,9 @@ Join my Discord server: https://discord.gg/8t8GZY2kjN
 
 Also join my Chess.com club: https://www.chess.com/club/bombcraft-new-tomfoolery-club
 
-46,XY (in simpler terms: he/him)
+he/any
+
+I do not allow any of my work to be used to train AI.
 
 If you need to contact me for anything, email me at bombcraft2010@gmail.com or send me a message on Discord (my Discord username is just "bombcraft")
 
