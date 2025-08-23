@@ -18,23 +18,23 @@ Cool music: https://github.com/ImmediateMurderProfessionals/ImmediateMurderProfe
 
 Counters until notable dates:
 
-Days until Gen Beta starts: 132
+Days until Gen Beta starts: 131
 
-Days until I turn 16: 219
+Days until I turn 16: 218
 
-Days until I turn 17: 584
+Days until I turn 17: 583
 
-Days until I turn 18: 950
+Days until I turn 18: 949
 
-Days until I graduate high school: 1016
+Days until I graduate high school: 1015
 
-Days until I vote for an actually good candidate: 1173
+Days until I vote for an actually good candidate: 1172
 
-Days until said actually good candidate becomes president: 1247
+Days until said actually good candidate becomes president: 1246
 
-Days until the end of the 2020s: 1594
+Days until the end of the 2020s: 1593
 
-Days until the heat death of the universe: 4010
+Days until the heat death of the universe: 4009
 
 
 Nintendo switch friend code: SW-2753-1792-8503
