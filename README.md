@@ -1,8 +1,8 @@
-I'm BombCraft (changing username on September 6, 2025 because my current username sucks)
+I'm lambdascorpii (formerly known as BombCraft)
 
 15 | he/any | autistic | silly bisexual cat | gd creator, 5 creator points
 
-If you need to contact me for anything, email me at bombcraft2010@gmail.com or send me a message on Discord (my Discord username is just "bombcraft"). I also take GD level requests on Discord, but I can't guarantee that your level will be sent to mods, since I am not a mod and I don't have many connections with mods.
+If you need to contact me for anything, email me at bombcraft2010@gmail.com or send me a message on Discord (my Discord username is "lambdascorpii."). I also take GD level requests on Discord, but I can't guarantee that your level will be sent to mods, since I am not a mod and I don't have many connections with mods.
 
 If you have a Nintendo Switch or Switch 2, my friend code is SW-2753-1792-8503. I'll add my Pokemon Go friend code later.
 
