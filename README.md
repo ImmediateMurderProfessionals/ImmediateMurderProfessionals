@@ -2,7 +2,7 @@ I'm BombCraft
 
 pfp: https://uk.news.yahoo.com/escape-artist-bunny-accidentally-pancakes-220000989.html
 
-15 | he/any | autistic | silly bisexual cat | gd creator, 9 creator points
+15 | he/any | autistic | silly cat | questioning | gd creator, 9 creator points
 
 If you need to contact me for anything, email me at bombcraft2010@gmail.com or send me a message on Discord (my Discord username is "bombcraft"). I also take GD level requests on Discord, but I can't guarantee that your level will be sent to mods, since I am not a mod and I don't have many connections with mods.
 
