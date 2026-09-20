@@ -4,9 +4,9 @@ If you're a human and can actually read this, fuck off lol I'm not accepting you
 
 You can email me for legitimate reasons though; I'm open to any questions, comments, or concerns. But yeah uhh don't send me spam.
 
-
-
-
+ 
+ 
+ 
 
 I'm BombCraft
 
