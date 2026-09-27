@@ -12,7 +12,7 @@ I'm BombCraft
 
 pfp: https://uk.news.yahoo.com/escape-artist-bunny-accidentally-pancakes-220000989.html
 
-16 | he/any | autistic | silly cat | pan | gd creator, 21 creator points
+16 | he/any | autistic | silly cat | pan | gd creator, 23 creator points
 
 @bombcraft on Discord.
 
